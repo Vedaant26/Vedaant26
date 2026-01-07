@@ -8,7 +8,6 @@ Email Me 👉 ✉️ **vedaant04mitra@gmail.com.com** For Collaboration/Project 
 - 📫 **How to reach me:**  vedaant04mitra@gmail.com
 - 😄 **Pronouns:** Mitra Ji
 - ⚡ **Fun fact:** You Can Code But Can't Debug
-
 - <!-- Snake Game Repo View -->
 
 <div align="center">
