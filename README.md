@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Vedaant Mitra
-**A passionate Machine Learning || Dveloper || Engineer**
+**A passionate Machine Learning || Developer || Engineer**
 
 Email Me 👉 ✉️ **vedaant04mitra@gmail.com.com** For Collaboration/Project or Anything Else. 😊😊
 
